@@ -1,1 +1,3 @@
-# https://christi-na.github.io/baby-shop-webpage.github.io/
+# WELCOME TO OLIVE AND AVERY 
+KIDS WEBSITE
+# BY KALLY-X
